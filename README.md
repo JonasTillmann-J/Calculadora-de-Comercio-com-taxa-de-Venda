@@ -1,0 +1,1 @@
+# Calculadora-de-Comercio-com-taxa-de-Venda
